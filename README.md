@@ -40,7 +40,7 @@
 
 ## You Can't copy or clone this repo , Don't Waste Your Time😂
 
-***[JOIN ACCOUNCEMENT GROUP](https://chat.whatsapp.com/Lk3KCbvyaCyJ0QlouEL32K)***
+***[JOIN ACCOUNCEMENT GROUP](https://chat.whatsapp.com/Lk3KCbvyaCyJ0QlouEL32K)**
 
 ***[JOIN SUPPORT GROUP](https://chat.whatsapp.com/LVn5DG2V3UwBY5IDlG58kH)***
 
